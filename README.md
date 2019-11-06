@@ -15,7 +15,7 @@ a lamen
 
 
 
-do not derseve such on this date
+do not derseve such on this date.
 
 
 until next time
